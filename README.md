@@ -1,0 +1,1 @@
+Hi! Folks. My name is Atif Essa Harunani. I am in grade 6 doing the CBC curriculum in Kenya. I study in Memon Academy Primary School in Mombasa. my site will entail all the tools that i require for my studies and for my life.
